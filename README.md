@@ -1,1 +1,0 @@
-# Goznak_test
